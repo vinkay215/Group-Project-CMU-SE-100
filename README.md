@@ -1,4 +1,4 @@
-**INTRODUCTION**
+🚀 **INTRODUCTION**
 
 **MARINA SEAFOOD RESTAURANT** - Explore the Fresh Seafood Flavors
 
@@ -8,7 +8,7 @@
 
 **Business Field:** A restaurant specializing in delicious fresh seafood
 
-Welcome to MARINA SEAFOOD RESTAURANT, an excellent destination for seafood enthusiasts who love the taste of fresh and delicious seafood. Located at 73 Nguyen Van Linh, we take pride in being the perfect place for you to discover unique flavors and the freshest ingredients from the sea.
+⚡ Welcome to MARINA SEAFOOD RESTAURANT, an excellent destination for seafood enthusiasts who love the taste of fresh and delicious seafood. Located at 73 Nguyen Van Linh, we take pride in being the perfect place for you to discover unique flavors and the freshest ingredients from the sea.
 
 At MARINA SEAFOOD RESTAURANT, we always prioritize freshness and quality. Our menu is diverse with unique seafood dishes, ranging from fresh seafood, steamed dishes, stir-fried dishes, sushi, sashimi, and many other seafood specialties. Our talented kitchen team is always ready to create stylish and enticing seafood feasts.
 
