@@ -20,9 +20,12 @@ Let MARINA SEAFOOD RESTAURANT be the ideal destination for all seafood lovers an
 
 **Author**: VinKay
 - **[Website]([https://github.com/DenverCoder1](https://marinateam5.glitch.me/)https://marinateam5.glitch.me/)**
+https://marinateam5.glitch.me
 
+📤 DONATE ME
+[☕ Buy me a coffee](https://nguyenquocvinh.glitch.me/Donate)
 
-
-
+## 🙋‍♂️ Support
+💙 If you like this project, give it a ⭐ and share it with friends!
 
 
