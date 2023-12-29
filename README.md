@@ -17,7 +17,8 @@ MARINA SEAFOOD RESTAURANT is not only a place to enjoy great food but also a lux
 Come and experience the unique flavors of fresh seafood at MARINA SEAFOOD RESTAURANT. We are committed to offering you a dining experience like no other place. Feel free to contact us at the phone number 0888 6956 79 to make a reservation or to learn more about our menu and services.
 
 Let MARINA SEAFOOD RESTAURANT be the ideal destination for all seafood lovers and those seeking a high-class culinary experience. We look forward to serving you!
-
+-----------------------------------------------
+**The success** of the project is due to the great participation of **Quoc Vinh**, **Thanh Vu ** and  ** Van Vu**
 **Author**: VinKay
 - **[Website]([https://github.com/DenverCoder1](https://marinateam5.glitch.me/)https://marinateam5.glitch.me/)**
 https://marinateam5.glitch.me
