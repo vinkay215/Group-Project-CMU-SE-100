@@ -4,7 +4,7 @@
 
 **Address:** 73 Nguyen Van Linh, Hai Chau Ward, Hai Chau District, Da Nang
 
-**Phone Number:** 0123 789 456
+**Phone Number:** 0888 6956 70
 
 **Business Field:** A restaurant specializing in delicious fresh seafood
 
